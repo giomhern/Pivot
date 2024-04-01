@@ -1,2 +1,2 @@
 # Pivot
-[in progress]
+Indeed and LinkedIn
